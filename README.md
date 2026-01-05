@@ -18,7 +18,7 @@
 
 <p align="center">Im really into a bunch of fandoms and would probbly update this once i figure out more :D
 
-<p align="center"><img width="355" height="142" alt="image" src="https://github.com/user-attachments/assets/da35a3a7-4aca-455f-be69-74309a744ac0" />
+<p align="center"><img width="640" height="696" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
 
 
 <p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , - TBC
