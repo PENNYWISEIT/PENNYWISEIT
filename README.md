@@ -18,7 +18,7 @@
 
 <p align="center">Im really into a bunch of fandoms and would probbly update this once i figure out more :D
 
-<p align="center"><img width="640" height="696" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
+<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
 
 
 <p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , - TBC
@@ -26,7 +26,7 @@
 <p align="center">MY MAIN FRIENDS- Ollie , EJ- and TBC
 
 
-<p align="center"><img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
+<p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
 
 
 <p align="center">Currently have a cute boyfriend
