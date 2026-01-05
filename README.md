@@ -1,4 +1,4 @@
-<p align="center"><img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/45472b0c-b849-45aa-be4c-baeab6057fa8" />
+<p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/45472b0c-b849-45aa-be4c-baeab6057fa8" />
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one+Come+all+!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+PENNY+WISE;Free+Hugs+!;Want+A+Balloon+?;Come+Float+.+.+.We+ALL+float+down+here+.+.+.;.+.+.;Wanna+Play+With+Me+?)](https://git.io/typing-svg)
@@ -23,10 +23,10 @@
 
 <p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , - TBC
 
-<p align="center">MY MAIN FRIENDS- Ollie , toby , EJ- and TBC
+<p align="center">MY MAIN FRIENDS- Ollie , EJ- and TBC
 
 
-<p align="center"><img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/db9fae74-95e7-4b2d-8193-50d26efa678a" />
+<p align="center"><img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
 
 
 <p align="center">Currently have a cute boyfriend
@@ -37,8 +37,7 @@
 
 <p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
 
-<p align="center"><img width="894" height="160" alt="image" src="https://github.com/user-attachments/assets/0378b9b2-ac6d-4495-8163-ef920f5e725a" />
-
+<p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/46462c76-abd5-4c16-8f56-18267acf57c0" />
 
 
  <p align="center">3FS IS SO ME <3 
