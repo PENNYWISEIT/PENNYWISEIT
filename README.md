@@ -3,7 +3,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one+Come+all+!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+PENNY+WISE;Free+Hugs+!;Want+A+Balloon+?;Come+Float+.+.+.We+ALL+float+down+here+.+.+.;.+.+.;Wanna+Play+With+Me+?)](https://git.io/typing-svg)
 
-![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=470000&label=Have+Floated+Away)
+![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=470000&label=Floated+Away)
 
 
 <p align="center">HIA!! please follow me, on the road to 200 !! - If not thats okay! i still love ya <3
