@@ -31,13 +31,13 @@
 
 <p align="center">Currently have a cute boyfriend
 
-<p align="center">My Discord is .poproxs !! Ill only friend you if you ask me IN GAME first. i dont friend random people </3
-
 <p align="center">NUMBER ONE FEMBOY HATER I HATE THEM <3
 
-<p align="center">**BUGGEST PENNYWISE FAN YOU CANT BEAT EM IDC WHO YOU ARE HE'S MINEEEEEEEEEEEEEEEEE**
+<p align="center">BIGGEST PENNYWISE FAN YOU CANT BEAT EM IDC WHO YOU ARE HE'S MINEEEEEEEEEEEEEEEEE
 
-<p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night 
+<p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night. 
+
+<p align="center">My Discord is .poproxs !! Ill only friend you if you ask me IN GAME first. i dont friend random people </3
 
 <p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/46462c76-abd5-4c16-8f56-18267acf57c0" />
 
