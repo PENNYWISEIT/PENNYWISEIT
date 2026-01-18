@@ -31,6 +31,8 @@
 
 <p align="center">Currently have a cute boyfriend
 
+<p align="center">My Discord is .poproxs !! Ill only friend you if you ask me IN GAME first. i dont friend random people </3
+
 <p align="center">NUMBER ONE FEMBOY HATER I HATE THEM <3
 
 <p align="center">**BUGGEST PENNYWISE FAN YOU CANT BEAT EM IDC WHO YOU ARE HE'S MINEEEEEEEEEEEEEEEEE**
