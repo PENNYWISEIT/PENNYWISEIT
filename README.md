@@ -35,7 +35,7 @@
 
 <p align="center">Currently have a cute boyfriend
 
-<p align="center">NUMBER ONE FEMBOY HATER I HATE THEM <3
+<p align="center">NUMBER ONE FEMBOY & TWINK HATER I HATE THEM <3
 
 <p align="center">NUBER ONE TOBY HATER (On PT) IF YK THEN YK
 
