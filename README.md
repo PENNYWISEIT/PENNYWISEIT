@@ -16,12 +16,14 @@
 
 <p align="center">I really dont like to talk about any type of hate on anyone, or on my main fandom creepypasta, i love this fandom so much so if you dont like it, i dont mind, but if you hate on me for liking it i will perm block you <3
 
+ <p align="center">DNI List- Racist, Pro/darkshippers, Fake illnesses, Minors under 13 + Adults over 25, Homophobes, Zoophiles, Ableists/people who mock disabilities for fun, People Who Hate My Fandoms.
+
 <p align="center">Im really into a bunch of fandoms and would probbly update this once i figure out more :D
 
 <p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
 
 
-<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , - TBC
+<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , - TBC
 
 <p align="center">NUMBER ONE FRIEND EVER!!!!!-  OLLIE  -
 
@@ -35,9 +37,9 @@
 
 <p align="center">NUMBER ONE FEMBOY HATER I HATE THEM <3
 
-<p align="center">NUBER ONE TOBY HATER IF YK THEN YK
+<p align="center">NUBER ONE TOBY HATER (On PT)IF YK THEN YK
 
-<p align="center">BIGGEST PENNYWISE FAN YOU CANT BEAT EM IDC WHO YOU ARE HE'S MINEEEEEEEEEEEEEEEEE
+<p align="center">BIGGEST PENNYWISE FAN YOU CANT BEAT ME IDC WHO YOU ARE HE'S MINEEEEEEEEEEEEEEEEE
 
 <p align="center">Thats all for now my friends! big thank you to everyone who follows me [and who have read this far] I will keep updating this whenever! hope ya have a good day or night. 
 
