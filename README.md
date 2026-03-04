@@ -1,7 +1,7 @@
 <p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/45472b0c-b849-45aa-be4c-baeab6057fa8" />
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one+Come+all+!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+PENNY+WISE;Free+Hugs+!;Want+A+Balloon+?;Come+Float+.+.+.We+ALL+float+down+here+.+.+.;.+.+.;Wanna+Play+With+Me+?+All+good+comes+to+those+.+.+.;Who+Float+.+.+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=FFFFFF&width=435&lines=Whant+Some+Candy+,+Kid?;Come+one+Come+all+!;+To+see+the+best+clown+of+them+all!!;+The+one,+the+only,+PENNY+WISE;Free+Hugs+!;Want+A+Balloon+?;Come+Float+.+.+.We+ALL+float+down+here+.+.+.;.+.+.;Wanna+Play+With+Me+?;All+good+comes+to+those+.+.+.;Who+Float+.+.+.)](https://git.io/typing-svg)
 
 ![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=470000&label=Floated+Away)
 
