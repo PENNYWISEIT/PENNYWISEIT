@@ -25,7 +25,7 @@
 <p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/6ad9b03b-747d-4032-bcf2-fdff87ee9ee9" />
 
 
-<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , - TBC
+<p align="center">FANDOMS: MLP, CreepyPasta, FNAF, Dandys World, Monster High, Inside-The game, Piggy, DBH, Marvel, DC, CRK, SCP, Andys apple farm, BATIM, IT, Harry Potter, Undertale, Little Nightmares, Little misfortune, FranBow, Cuphead, Poppy Playtime, Beastars , Sonic , The Walten Files , Pokemon , FNF , Brawl Stars , Avatar , Hello Neighbor , Lego , Scream , Sonic.EXE , Mr. Hopps Playhouse , - TBC
 
 <p align="center">NUMBER ONE FRIEND EVER!!!!!-  OLLIE  -
 
