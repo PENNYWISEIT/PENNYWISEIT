@@ -50,6 +50,7 @@
 
 <p align="center"><img width="900" height="300" alt="image" src="https://github.com/user-attachments/assets/46462c76-abd5-4c16-8f56-18267acf57c0" />
 
+<p align="center">My brother IS bendy... HELLO IM YOUR NEIGHBOR GOODBYE ILL SEE U LATER... <- what my brother said
 
  <p align="center">3FS IS SO ME <3 
 
