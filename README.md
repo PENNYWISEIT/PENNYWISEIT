@@ -30,7 +30,7 @@
 
 <p align="center">NUMBER ONE FRIEND EVER!!!!!-  OLLIE  -
 
-<p align="center">MY MAIN FRIENDS- Ollie , EJ , Null , Nousername , kai/fish , Toko , and TBC
+<p align="center">MY MAIN FRIENDS- Ollie , EJ , Null , Nousername , kai/fish and TBC
 
 
 <p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
@@ -38,7 +38,7 @@
 
 <p align="center">Currently have a cute boyfriend
 
-<p align="center">NUMBER ONE FEMBOY & TWINK HATER I HATE THEM <3
+<p align="center">NUMBER ONE FEMBOY & JAX HATER I HATE THEM <3
 
 <p align="center">uhh.... uh uh.... UHM... idk man eats u ig?... yeah im gonna eat u. ur gonna float too. :3
 
