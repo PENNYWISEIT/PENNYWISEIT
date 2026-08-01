@@ -8,7 +8,9 @@
 
 <p align="center">HIA!! please follow me, on the road to 200 !! - If not thats okay! i still love ya <3
 <p align="center">YAYAAYAYAY THANK YOU SO MUCH FOR 100 FOLLOWERS THIS IS MY DREAMMMMMM!!!!!!!!!!
-<p align="center">IF you sneeze on me in game i will hide you fully for 15 mins
+<p align="center"> HAHHAHAAHAAH TYSM MY LOVELY'S FOR 200 FOLLOWERS I AM ETERNALLY GREAT FULL FOR YOUR SUPPORT!!!
+ 
+ <p align="center">IF you sneeze on me in game i will hide you fully for 15 mins
 
 <p align="center">My names LJ, Soda, Sprout or Monty!- or whatever you wanna call me! I go by the pronouns She/Her, i wear glasses so dont mind if im a bit BLIND, i have ADHD and a bit of autisim so please dont mind me if im a bit slow, i Can get very upset over some small things that i dont like talking about so please dont mind me, if your rude to me or just racist or anytype of phobic [besides the bad ones] i will freely block you for a cupple of days
 
