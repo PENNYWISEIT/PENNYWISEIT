@@ -32,7 +32,7 @@
 
 <p align="center">NUMBER ONE FRIEND EVER!!!!!-  OLLIE  -
 
-<p align="center">MY MAIN FRIENDS- Ollie , EJ , Null , Nousername , kai/fish and TBC
+<p align="center">MY MAIN FRIENDS- Ollie , EJ , Birb , Null , Nousername , kai/fish , mxsf1tsand TBC
 
 
 <p align="center"><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/4f4d2192-e9f0-431b-8983-da497dea67e2" />
