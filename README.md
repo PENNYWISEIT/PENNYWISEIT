@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=PENNYWISEIT&color=470000&label=Floated+Away)
 
 
-<p align="center">HIA!! please follow me, on the road to 200 !! - If not thats okay! i still love ya <3
+<p align="center">HIA!! please follow me, on the road to 300 !! - If not thats okay! i still love ya <3
 <p align="center">YAYAAYAYAY THANK YOU SO MUCH FOR 100 FOLLOWERS THIS IS MY DREAMMMMMM!!!!!!!!!!
 <p align="center"> HAHHAHAAHAAH TYSM MY LOVELY'S FOR 200 FOLLOWERS I AM ETERNALLY GREAT FULL FOR YOUR SUPPORT!!!
  
