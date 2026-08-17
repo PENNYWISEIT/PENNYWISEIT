@@ -21,6 +21,7 @@
  <p align="center">DNI List- Racist, Pro/darkshippers, Fake illnesses, Minors under 13 + Adults over 25, Homophobes, Zoophiles, Ableists/people who mock disabilities for fun, People Who Hate My Fandoms.
 
 
+<p align="center">I DONT SUPPORT QWEL
 <p align="center">I really dont like some ships in dandys world but i wont hate on your for liking them, just iwec if you like them, fruitcake/cakefruit, shellyvison, moonflower, dyle and rodger, rodger and glisten.
 
 <p align="center">Im really into a bunch of fandoms and would probbly update this once i figure out more :D
